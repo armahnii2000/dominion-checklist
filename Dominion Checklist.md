@@ -1,5 +1,10 @@
-Dominion Checklist [End of Year Appraisals] 2 Peter 1:21 with Apostle Joshua Selman – 2025
-https://www.youtube.com/watch?v=d2IJ2jxNmec
+# Dominion Checklist
+
+**End of Year Appraisals** | 2 Peter 1:21
+
+*with Apostle Joshua Selman – 2025*
+
+[Watch on YouTube](https://www.youtube.com/watch?v=d2IJ2jxNmec)
  
 Transcript:
 (00:03) Everyone is destined by Christ to rise. I have cried oh walking with God. Let me tell you the truth. If anybody tells you walking with God is just full of laughter, you are joking. It's not the God of the Bible. Every generation will not be confused. There is a generation that will get this thing from that day.
