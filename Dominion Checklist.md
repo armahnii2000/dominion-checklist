@@ -9,13 +9,21 @@ https://www.youtube.com/watch?v=d2IJ2jxNmec
 
 ## Thanksgiving
 
+### Call to Thanksgiving
+
 &nbsp;&nbsp;&nbsp;&nbsp;Hallelujah. Thank you, Lord Jesus. Now, please listen to me. We are people who have an understanding of the things that we are doing. >> When you see us celebrate and rejoice, it is because we have tasted of the goodness of God. Now, let me give you the next two minutes. I don't know how you are going to thank the Lord. But in the name of Jesus Christ, open your mouth and say thank you. begin to reflect on everything he's done. Everything he's done. Everything he's done. Everything he's done. For his kindness, for his faithfulness. Someone is giving him thanks. You had an accident this year, but you survived. Or you would have had an accident this year, but you survived.
+
+### Corporate Thanksgiving
 
 &nbsp;&nbsp;&nbsp;&nbsp;Thank him for January, February, March, April, May, June, July, August, September, October, November, December. Lord, you are faithful. Lord, you are faithful. You said it and you kept your word. Someone say thank you. Many were buried this year minus you. Someone give God praise. You would have gone the way of the grave but for his mercies. Thank God for Coonia Global for our programs this year. Thank him for the impact. We saw his mighty hand, his power in our midst. Thank him for safety as we traveled around the nations. Thank him for grace. Thank him for every department in this house. Thank him for every arm of expression in this ministry. Your faithfulness, oh God, we are a people helped by God. Marvelously helped by God. Thank him for mighty marriages. Thank him for children. Thank him for graduations. Thank you for jobs. Thank him for financial upliftments. Thank him for healings, for miracles. Thank him for salvation. Thank him for transformation. Thank him for wiping tears, opening doors, making ways. Oh, we give you praise. We give you praise. We give you praise. A grateful people are giving you praise. One more minute you are telling him thank you. Thank him for your spouse, for your children, for every testimony, for challenges you survived. Thank you for the salvation of your soul. Lord, we bless you. We thank you. We thank you. We thank you. I thank you.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Thank you for this year, for your power, for your wisdom, for help. marvelously helping us for not giving us to the desires of our enemies. We say thank you for disappointing the strategies of the crafty. Thank you for deliverances, for help. Lord, we give you praise. Lord, we give you praise. Lord, we give you praise. Lord, we give you praise. Lord, we give you praise. Lord, we give you praise. Lord, we give you praise. We are grateful. We are thankful. We are thoughtful. We are intentional about your mercies. Thank you, Jesus. Thank you, Jesus. Thank you Jesus for in Jesus name we have given thanks.
 
+### Prayer of Thanksgiving
+
 &nbsp;&nbsp;&nbsp;&nbsp;>> Father tonight I bow my knees on behalf of your people and on behalf of the globe watching a family connected online and the body of Christ. We're not ashamed to declare before the nations that we are a people marvelously helped of God. for everything good, for everything God, for everything great, for everything worthy of praise and commendation. We say thank you for helping us survive challenges, for not giving us to the desires of our enemies, for disappointing Satan again and again over our destinies, for stopping us from going the way of the grave, for stopping us from going the way of shame and reproach. We say thank you. The ones you've helped have come to worship you. The ones you've saved have come to worship you. The ones you've lifted have come to worship you. The ones you blessed have come to worship you. Saveior. You are saveior. The ones who say have come to worship you. The ones who say come to worship you. We pray tonight, oh God, that you accept our hearts and then accept our worship, accept our declarations of thanksgiving. To you be all the glory for in Jesus matchless name we have worshiped.
+
+### Closing
 
 &nbsp;&nbsp;&nbsp;&nbsp;>> Amen. God bless you. God bless you. God bless you everybody. To God be the glory.
 
